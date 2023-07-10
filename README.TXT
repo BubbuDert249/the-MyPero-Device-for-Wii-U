@@ -1,0 +1,1 @@
+this is not works in 3DS XL, 3DS New, 3DS XL New, 2DS XL, 2DS New, 2DS XL New and European Switch and Switch OLED and Switch Lite
